@@ -62,7 +62,6 @@ Travelling is indeed an enriching experience. And here's why I think so
     - we love efficiency
     - just buy a new photocopier!
 
-
   - slower pace of life in India
     - they stop and observe
     - they come together to eat
