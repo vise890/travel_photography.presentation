@@ -7,7 +7,7 @@ I'll do so by telling you snippets about trips in India and other places and by 
 -- Nomadic Proverb
 
 While this was outside a travel agency, and they were probably trying to guilt people into arranging trips with them, I think it holds a kernel of truth.
-Travelling is indeed an enriching experience. And here's why I think so
+Travelling is indeed an enriching experience. And I hope that, through this presentation I'll be able to convey why I think so.
 
 ## 1 - Rediscover where you come from
 - I was drinking Chai at the appendices of the Himalayas.
@@ -16,6 +16,8 @@ Travelling is indeed an enriching experience. And here's why I think so
 - That stunning view made me remember that I live by the Alps...thy're just an hour away
   - there are places worth visiting back home too
   - places I take for granted while I'm there
+  
+  *So I think that travel can make you re-evaluate what you have back home*
 
 - WHY:
 - while you're travelling, and especially when you're carrying a camera
@@ -34,7 +36,9 @@ Travelling is indeed an enriching experience. And here's why I think so
   - or to isolate it
   - .. and ..
   - .. remove the noise around it
-
+  
+  *and a camera can be really good to help you do this*
+  
   - in scrap metal
   - sometimes is just a view outside the window.
 
