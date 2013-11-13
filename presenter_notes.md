@@ -81,7 +81,7 @@ Travelling is indeed an enriching experience. And I hope that, through this pres
        - something that perhaps is lost nowadays in modern office culture.
        
       
-So I really think that travel can make you grow as a person. Certainly much of who I am has been shaped by being exposed to different cultures, people and places.
+To conclude, I really think that travel can make you grow as a person. Certainly much of who I am has been shaped by being exposed to different cultures, people and places.
   
 Thank you.
  
